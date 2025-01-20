@@ -10,7 +10,7 @@ Ready to plunge into a super cool journey of music? Let's start this adventure!
 You may also like:
 - [Sprunki Pyramixed](https://pyramixed.com/)
 - [Sprunki Parodybox](https://pyramixed.com/sprunki-parodybox)
-- [Sprunki Scrunkly](https://pyramixed.com/sprunki-scrunkly)
+- [Sprunki Scrunkly](https://scrunkly.online/)
 - [Sprunki Sprunkr](https://sprunkr.me/)
 - [Sprunki Corruptbox](https://corruptbox.com/)
 
